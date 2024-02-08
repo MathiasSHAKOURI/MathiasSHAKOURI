@@ -8,6 +8,7 @@ Toujours en quête de défis, je maintiens mes compétences à jour pour contrib
 
 Ma persévérance et mon esprit d'équipe sont des atouts que je mets volontiers à contribution.
 
+![image](https://github.com/MathiasSHAKOURI/MathiasSHAKOURI/assets/122030473/b2804f6e-f48d-493f-91bb-0f0701a8a77f)
 
 <!--
 **MathiasSHAKOURI/MathiasSHAKOURI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
