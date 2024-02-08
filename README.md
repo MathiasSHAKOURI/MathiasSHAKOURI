@@ -8,6 +8,8 @@ Toujours en quête de défis, je maintiens mes compétences à jour pour contrib
 
 Ma persévérance et mon esprit d'équipe sont des atouts que je mets volontiers à contribution.
 
+https://www.linkedin.com/in/mathias-shakouri/
+
 ![image](https://github.com/MathiasSHAKOURI/MathiasSHAKOURI/assets/122030473/b2804f6e-f48d-493f-91bb-0f0701a8a77f)
 
 <!--
