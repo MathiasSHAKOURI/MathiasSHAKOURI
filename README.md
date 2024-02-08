@@ -1,5 +1,4 @@
-# Mathias SHAKOURI
-## DEVELOPPEUR WEB
+# Mathias SHAKOURI - DEVELOPPEUR WEB
 
 Passionné par le développement web, j'ai suivi une formation de six mois à l'école O'clock.
 
